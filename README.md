@@ -16,4 +16,4 @@ Estudante buscando sempre por mais conhecimento nas áreas da tecnologia
 ### 🍡 Vamos conectar?
 
 
-[![LinkedIn](https://www.linkedin.com/in/carolineogomes/)
+[💬[LinkedIn](https://www.linkedin.com/in/carolineogomes/)

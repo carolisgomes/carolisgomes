@@ -1,7 +1,7 @@
 ### Olá, eu sou a Caroline 🎀
 
 
-Estudante buscando sempre por mais conhecimento nas áreas da tecnologia
+Estudante buscando sempre por mais conhecimento nas áreas da tecnologia.
 
 ---
 
